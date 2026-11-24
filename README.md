@@ -9,7 +9,7 @@ where are all the black clover fans at😢
 </p>
 
 <p align="center">
-<img width="400" height="500" alt="𓈒   𓏼  ̣̣ ۟     𝕜𝕒𝕚𝕥𝕠_     사    ﹒♡" src="https://github.com/user-attachments/assets/93367ada-d7bf-42de-aeaa-df2aba5c8a01" />
+<img width="447" height="558" alt="𓈒___𓏼__̣̣_۟_____𝕜𝕒𝕚𝕥𝕠______사______-removebg-preview" src="https://github.com/user-attachments/assets/7741aba9-43df-4e8b-9d97-58c61ba5f0e0" />
 </p>
 
 <p align="center">
