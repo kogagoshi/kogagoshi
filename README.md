@@ -7,3 +7,11 @@
 <p align="center">
 where are all the black clover fans at😢
 </p>
+
+<p align="center">
+<img width="400" height="500" alt="𓈒   𓏼  ̣̣ ۟     𝕜𝕒𝕚𝕥𝕠_     사    ﹒♡" src="https://github.com/user-attachments/assets/93367ada-d7bf-42de-aeaa-df2aba5c8a01" />
+</p>
+
+<p align="center">
+why is he so TWINK
+</p> 
